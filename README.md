@@ -1,0 +1,4 @@
+- 👋 Hi, I'm @Rayival
+- 👀 I'm interested in daveloper games
+- 🌱 I'm currently learning programming
+- 📫 How to contact me rayival02@gmail.com
